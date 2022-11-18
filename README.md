@@ -1,5 +1,5 @@
 👋 ✨ ✨  🔭 🌱  👯 🤔  💬  😄  ⚡ 
-sou a emely, tenho 15 anos estudo no ceas.
+sou a emely, tenho 16 anos estudo no ceas.
 amo o neymar.
 sou flamenguista.
 sou amiga da erika chata.
